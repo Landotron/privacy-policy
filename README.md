@@ -43,4 +43,4 @@ We may update this Privacy Policy from time to time. When we do, we will update 
 
 ## Contact
 
-If you have questions about this Privacy Policy, contact the [Landotron](https://www.facebook.com/profile.php?id=61591091828535)
+If you have questions about this Privacy Policy, contact [Landotron](https://www.facebook.com/profile.php?id=61591091828535)
